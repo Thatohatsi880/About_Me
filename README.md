@@ -1,6 +1,6 @@
-As a recent student from the University Of South Africa studying Bachelor of Science, I am
+###As a recent student from the University Of South Africa studying Bachelor of Science, I am
 confident that I am well-prepared to be a valuable contributor to any company's growth and
-success. Welcome to my platform!
+success. Welcome to my platform!###
 
 I am detail-oriented and meticulous when managing competing priorities within tight
 deadlines. I work best in roles where utilizing coding allows me to make a positive impact
