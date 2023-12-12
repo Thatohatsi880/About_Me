@@ -1,4 +1,4 @@
-###As a recent student from the University Of South Africa studying Bachelor of Science, I am
+###As a recent alumni of the University Of South Africa studying Bachelor of Science, I am
 confident that I am well-prepared to be a valuable contributor to any company's growth and
 success. Welcome to my platform!###
 
