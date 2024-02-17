@@ -1,7 +1,3 @@
-###As a recent alumna of the University Of South Africa who studied Bachelor of Science, I am
-confident that I am well-prepared to be a valuable contributor to any company's growth and
-success. Welcome to my platform!###
-
 I am detail-oriented and meticulous when managing competing priorities within tight
 deadlines. I work best in roles where utilizing coding allows me to make a positive impact
 while using creative problem-solving to solve issues and achieve goals since I learnt a lot on
